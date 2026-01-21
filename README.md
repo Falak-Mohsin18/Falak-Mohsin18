@@ -1,5 +1,5 @@
 # 💫 About Me:
-BTech student | Learning Artificial Intelligenc & Blockchain<br>Interested in building real-world projects and exploring new technologies.
+BTech student | Learning Artificial Intelligence & Blockchain<br>Interested in building real-world projects and exploring new technologies.
 
 
 ## 🌐 Socials:
